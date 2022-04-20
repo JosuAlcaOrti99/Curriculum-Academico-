@@ -6,7 +6,7 @@
 
 ## __Motivacion__
 
- <p style="color:purple;"> *__Mi Mayor deseo es poder exponer al mundo la realidad que enfrentan las poblaciones indigenas en el ordenamiento de sus terriorios y el manejo de sus recursos naturales__* </p>
+ <p style="color:purple;"> Mi Mayor deseo es poder exponer al mundo la realidad que enfrentan las poblaciones indigenas en el ordenamiento de sus terriorios y el manejo de sus recursos naturales </p>
 
 ____________________________________________________________________
 
