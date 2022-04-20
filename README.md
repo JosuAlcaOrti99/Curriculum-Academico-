@@ -1,5 +1,7 @@
 # __CURRICULUM ACADEMICO__
 
+____________________________________________________________________
+
 ## __Juanito de leon__
 
 <img src="https://us.123rf.com/450wm/ammentorp/ammentorp1812/ammentorp181200327/114245914-empresario-sonriente-de-pie-al-aire-libre-con-los-brazos-cruzados-.jpg?ver=6" alt="Cero" style="width:200px;height:150px;">
